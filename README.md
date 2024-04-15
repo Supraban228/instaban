@@ -7,7 +7,7 @@ We can remove the accounts you want on Insta, Tiktok, Facebook. You can even do 
 
 ├  All users accounts is Update + Proxy.
 
-├  Over 718 k users active.
+├  Over 55 k users active.
 
 ├  Bot can report a account with max 1.4M Followers.
 
