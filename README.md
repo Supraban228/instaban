@@ -11,6 +11,6 @@ We can remove the accounts you want on Insta, Tiktok, Facebook. You can even do 
 
 ├  Bot can report a account with max 1.4M Followers.
 
-├  It is very easy to use just by following the steps in the video on my channel.
+├  It is very easy to use just by following the steps in the video on my telegram channel : https://t.me/+pyZCsdlySnc3Yjg0
 
 Telegram: 👉  https://t.me/Supraban228
